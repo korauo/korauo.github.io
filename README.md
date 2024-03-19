@@ -1,3 +1,3 @@
 # my bio website
 
-(i downloaded someones solot.to page and edited it 💀)
+(i downloaded someones solo.to page and edited it 💀)
